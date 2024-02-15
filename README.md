@@ -1,7 +1,7 @@
 ```
-**mo·dus op·e·ran·di**
+mo·dus op·e·ran·di
 /ˌmōdəs ˌäpəˈrandē,ˌmōdəs ˌäpəˈranˌdī/
-*noun*
+noun
 noun: modus operandi; plural noun: modi operandi
 a particular way or method of doing something, especially one that is characteristic or well-established.
 ```
